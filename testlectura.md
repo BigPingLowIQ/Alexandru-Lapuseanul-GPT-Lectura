@@ -20,5 +20,5 @@
 | Cum s-a îmbolnăvit tiranul de lîngoare (friguri)? | Lăpușneanu se îmbolnăvește de lingoare (friguri) în urma unor încercări și provocări la care este supus, inclusiv să doarmă pe o piatră rece. |
 | Pe cine desemnează Lăpușneanu ca succesor? | Lăpușneanu desemnează pe Motoc, un boier de încredere, ca succesor al său. |
 | Cum este ucis Lăpușneanu? | Lăpușneanu este ucis într-un complot organizat de boierii săi de încredere, inclusiv Motoc. Este otrăvit și apoi strangulat. |
-| Ce cere Lăpușneanu simțind efectul otrăvii? | Simțind efectul otrăvii, Lăpușneanu cere apă și spune că își dorește să se spovedească și să moară creștinește. |
+| Ce cere Lăpușneanu simțind efectul otrăvii? | Simțind efectul otrăvii, Lăpușneanu cere sa fie ucis de unii din cei patru boieri de acolo. |
 | Unde este îngropat domnitorul, potrivit nuvelei? | Potrivit nuvelei, Lăpușneanul este îngropat în biserica mănăstirii Neamțu, alături de soția sa, doamna Ruxandra. |
