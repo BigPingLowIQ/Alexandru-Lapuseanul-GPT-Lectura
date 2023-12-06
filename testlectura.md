@@ -1,6 +1,6 @@
 | Intrebare | Raspuns |
 | --------- | ------- |
-| Cati copii avea vaduva care vine sa se planga domnitei Ruxandra? | Vaduva avea doi copii. |
+| Cati copii avea vaduva care vine sa se planga domnitei Ruxandra? | Vaduva avea cinci copii. |
 | Ce-i promite Lăpușneanul Ruxandei când ea îi cere încetarea omorurilor? | Lăpușneanul îi promite Ruxandei că va înceta omorurile și va respecta voința ei pentru sprijinul la rămânerea la putere. |
 | Care sunt cei doi boieri care nu vor să participe la ospatul pregatit de domnitor? | Cei doi boieri sunt Pătrașcu și Toderașcu. |
 | Care e primul boier ucis la ospat? | Primul boier ucis la ospat este Toderașcu. |
