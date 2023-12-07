@@ -21,4 +21,22 @@
 | Pe cine desemnează Lăpușneanu ca succesor? | Lăpușneanu desemnează pe Bogdan, fiuld sau, ca succesor. |
 | Cum este ucis Lăpușneanu? | Lăpușneanu este ucis într-un complot organizat de Stroici si Spancioc impreuna cu sotia sa si mitropolitul Teofan, moare otrăvit.|
 | Ce cere Lăpușneanu simțind efectul otrăvii? | Simțind efectul otrăvii, Lăpușneanu cere sa fie ucis de unii din cei doi boieri:Stroici si Spancioc. |
+|Cuvintele din cel de-al doilea motto al nuvelei „Alexandru Lăpușneanul”, „Ai sa dai seamă,
+doamnă!...” aparțin | Unei jupânese pe care a întâlnit-o domnița Ruxanda |
+|Cum se numește domnitorul care fuge la aflarea veștii că Alexandru Lăpușneanul se întoarce
+în țară? | Stefan Tomsa |
+|Care este prima rugăminte pe care i-o adresează Ruxanda lui Lăpuşneanu ? | sa nu mai verse sange |
+|Care sunt boierii care nu vor să participe la ospățul pregătit de domnitor? | 
+|Ce fac Ruxanda şi copiii în timpul masacrului? | Stau intr-un apartament separat si se roaga |
+|De ce este călugărit domnitorul?| la rugamintea sa, pentru ca stia ca va muri a cerit sa fie calugarit|
+|din cine era formată oastea lui Alexandru Lăpușneanul la intrarea în Moldova? | armata turceasca|
+|care este scopul revenirii lui Alexandru Lăpușneanul în Moldova | recucerirea tronului |
+|Ce funcţie a îndeplinit Alexandru Lăpuşneanul şi în ce ţară? | domnitor al moldovei |
+|Cum îşi află sfârșitul Moţoc? | la cererea norodului, este aruncat in multime dupa masacrul boierilor |
+|Cine îl învinsese pe Lăpu neanu, for ându-l să plece la Constantinopol? | Despotul |
+|Unde se întâlne te Lăpu neanu cu solia boierilor | intr-o dumbravă, lângă Tecuci|
+|Întrebat de Spancioc cu ce va sătura lăcomia păgânilor, Lăpusneanu răspunde că le va da | averile boierilor|
+| Are Lăpu neanu încredere în Motoc? | Nu, dar are nevoie de un intrigant ca el | 
+| Care e prima măsură luată de Lăpusneanu după a doua venire la putere? | dă foc cetătilor, în afară de Hotin |
+| Pe cine se bazează Lăpusneanu? | Pe o gardă numeroasă de mercenari albanezi, serbi, unguri |
 | Unde este îngropat domnitorul, potrivit nuvelei? | Potrivit nuvelei, Lăpușneanul este îngropat în biserica mănăstirii Slatina.. |
